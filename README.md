@@ -1,1 +1,1 @@
-https://t.me/bombhub_ali135/74
+https://t.me/inz_gun
