@@ -1,1 +1,1 @@
-https://t.me/bombhub_ali135
+https://bombhub.ir.page
