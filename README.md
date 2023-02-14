@@ -1,1 +1,1 @@
-https://bombhub.ir.page
+https://t.me/bombhub_app
